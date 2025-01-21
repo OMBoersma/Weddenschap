@@ -19,4 +19,4 @@ Maarten van Leeuwen wedt dat de gemiddelde prijs zal STIJGEN Oliver Boersma wedt
 Bij gelijkblijvende prijs (marge van +/- 1%) geven beide partijen een fles wijn aan elkaar.
 
 # Handtekening  : Oliver Boersma, 21 januari 2025
-# Handtekening  :
+# Handtekening  : Maarten van Leeuwen, 21 januari 2025
